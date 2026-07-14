@@ -12,10 +12,10 @@ hi i am lizzie ! i like ensemble stars (˶ˆᗜˆ˵)
 <img width="286" height="256" alt="29_Tori_Himemiya_Full_Render" src="https://github.com/user-attachments/assets/1c41a0a7-98af-410d-9a4f-00afa166118e" />
 <p align="center">other interests
 <p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-<p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　𓏵　shinymas
-<p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　⊧﹒chiikawa
-<p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　𓏵　life series + hc
-<p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　⊧﹒kpop 
+<p>　　　　　　　　　　　　　　　　　　　　　　　　　　　𓏵　shinymas
+<p>　　　　　　　　　　　　　　　　　　　　　　　　　　　⊧﹒chiikawa
+<p>　　　　　　　　　　　　　　　　　　　　　　　　　　　𓏵　life series + hc
+<p>　　　　　　　　　　　　　　　　　　　　　　　　　　　⊧﹒kpop 
 <p align="center">꒰ illit﹕nwjns﹕unchild﹕twice﹕loona﹕yena ꒱
 <p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 <p align="center">
