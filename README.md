@@ -2,6 +2,7 @@
 <p align="center">
 <img width="400" height="89" alt="Image" src="https://github.com/user-attachments/assets/c8d694bd-66b2-4510-be62-170198ed359e" />
 </p>
+<p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 <p align="center">
 hi i am lizzie ! i like ensemble stars (˶ˆᗜˆ˵)
 </p>
@@ -16,6 +17,7 @@ hi i am lizzie ! i like ensemble stars (˶ˆᗜˆ˵)
 <p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　𓏵　life series + hc
 <p>　　　　　　　　　　　　　　　　　　　　　　　　　　　　⊧﹒kpop 
 <p align="center">꒰ illit﹕nwjns﹕unchild﹕twice﹕loona﹕yena ꒱
+<p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 <p align="center">
 <img width="400" height="89" alt="Image" src="https://github.com/user-attachments/assets/c8d694bd-66b2-4510-be62-170198ed359e" />
 </p>
