@@ -7,7 +7,7 @@
 hi i am lizzie ! i like ensemble stars (˶ˆᗜˆ˵)
 </p>
 <p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-<p align="center">knightsP + eveP + tomoyaP　𓎟𓎡　leo is my oshi ! ꒰ა໒꒱
+<p align="center">knightsP + eveP + tomoyaP　𓎟𓎡　leo & jun are my main oshis ! ꒰ა໒꒱
 <p align="center">
 <img width="286" height="256" alt="29_Tori_Himemiya_Full_Render" src="https://github.com/user-attachments/assets/1c41a0a7-98af-410d-9a4f-00afa166118e" />
 <p align="center">other interests
