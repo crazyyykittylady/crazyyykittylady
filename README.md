@@ -21,3 +21,5 @@ hi i am lizzie ! i like ensemble stars (˶ˆᗜˆ˵)
 <p align="center">
 <img width="400" height="89" alt="Image" src="https://github.com/user-attachments/assets/c8d694bd-66b2-4510-be62-170198ed359e" />
 </p>
+<p align="center">i dont take ponytown srsly at all i am sorry if i offend u or your virtual horse
+<p align="center"><img width="206" height="196" alt="cat-oops" src="https://github.com/user-attachments/assets/1353ca39-aa2d-415d-a33e-88ef32d5a803" />
